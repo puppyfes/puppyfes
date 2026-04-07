@@ -6,4 +6,6 @@ and @[TheTrueCrime](https://github.com/TheTrueCrime) @[rationex](https://github.
 
 shout out to my oomfs!! @[CoId-BIood](https://github.com/CoId-BIood) , @[Gajushi-TsM](https://github.com/Gajushi-TsM)
 
-![:worm:](https://komarev.com/ghpvc/?username=shiningumbreon&color=red&label=❤️)
+address https://rentry.co/morrowshallofshame address pony town stealers bruh my main pony is NAWT SAFE FROM THEM 
+
+![:worm:](https://komarev.com/ghpvc/?username=shiningumbreon&color=yellow&label=💛)
