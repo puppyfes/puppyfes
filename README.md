@@ -1,3 +1,3 @@
 in progress 
 
-![:worm:](https://komarev.com/ghpvc/?username=shiningumbreon&color=yellow&label=💛)
+![:worm:](https://komarev.com/ghpvc/?username=shiningumbreon&color=red&label=🍬)
