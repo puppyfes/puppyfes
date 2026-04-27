@@ -1,5 +1,5 @@
 in progress 
 
-ruikasa and emurui my GOATSS
+i like polysho but ruikasa and emurui are my GOATSS 
 
 ![:worm:](https://komarev.com/ghpvc/?username=shiningumbreon&color=red&label=🍬)
