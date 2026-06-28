@@ -1,4 +1,5 @@
-wip
+<img width="224" height="264" alt="1000076011" src="https://github.com/user-attachments/assets/6b712e8b-5b3d-4866-9147-f4c9cf75331e" />
+
 
 
 ![:worm:](https://komarev.com/ghpvc/?username=shiningumbreon&color=red&label=🍬)
