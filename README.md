@@ -62,7 +62,9 @@ $\small{\text{\it\color{#B64594}{READ MY STRAWPAGE FOR MORE INFO ABT ME.}}}$
 
  <p align="center">
   <p align="center"> <img align="center" src="https://github.com/user-attachments/assets/e4809cb9-8aa6-4f4c-81d9-11f867af5744" width="250">
- 
+  
+  <p align="center">
+  <p align="center"> <img align="center" src="https://github.com/user-attachments/assets/a44b456b-903e-4c19-97e9-c25551aa1c7c" width="250">
  <p align="center"><a href="https://github.com/VilLeynn"><img src="https://github.com/user-attachments/assets/9fbdf027-eeb7-49f8-922c-2afcbf4eb231" width="8%"></a>&nbsp;&nbsp;&nbsp;<a href=https://github.com/ansyellowhairclip><img src="https://github.com/user-attachments/assets/624c7fae-1a3b-41a9-85b6-1a973eef3bb3" width="8%"></a>&nbsp;&nbsp;&nbsp;<a href="https://github.com/PSITTACOLOGY"><img src="https://github.com/user-attachments/assets/2ce87bf9-fb76-4127-9f63-cbc82d2171cb" width="8%"></a><a href="https://github.com/theconqueringprotaganista "><img src="https://github.com/user-attachments/assets/4503fed4-c6ac-4c47-9fa5-3d18dc2b7e8a" width="8%"><a href="https://github.com/WhispyVibez "><img src="https://github.com/user-attachments/assets/96881ba9-9158-4434-8793-aa56dde7c0d6" width="8%"><a href="https://github.com/byymyownn "><img src="https://github.com/user-attachments/assets/140981e7-e345-4cca-bb0b-210e5a0c04fb" width="8%"></p>
  <p align="center"> 
  $\tiny{\text{\it\color{#E9C548}{@leyn}}}$ $\tiny{\text{\it\color{#FD7D5B}{@ami}}}$ $\tiny{\text{\it\color{#C85085}{@ronin}}}$ $\tiny{\text{\it\color{#DDC24E}{@ruby}}}$ $\tiny{\text{\it\color{#FD8657}{@whist}}}$ $\tiny{\text{\it\color{#423A67}{@own}}}$
