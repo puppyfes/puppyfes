@@ -41,9 +41,9 @@ $\small{\text{\it\color{#B64594}{READ MY STRAWPAGE FOR MORE INFO ABT ME.}}}$
 
   <p align="center"> <img align="center" src="https://64.media.tumblr.com/985e32155de33323e69ca4e1428e6629/2dd790ac9ce0a3b1-81/s1280x1920/356a3943e009d748f603f728a33bbd752c00841a.pnj" width="250">
 <details>
-  <summary>$\tiny\color{#E85E8E}{\text{PONYTOWN AWARDS !!}}$</summary>
+  <summary>$\tiny\color{#E85E8E}{\text{PONYTOWN AWARDS}}$</summary>
  <sub> 
- Thank you <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media </a>, <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>, </a><a href="https://github.com/fans-town">@fans-town</a>, <a href="https://github.com/title-town">@title-town</a>, <a href="https://github.com/pt-friendships">@pt-friendships </a> <a href="https://github.com/pt-nominations">@pt-nominations</a>, <a href="https://github.com/pt-stars">@pt-stars</a>
+ <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media </a>, <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>, </a><a href="https://github.com/fans-town">@fans-town</a>, <a href="https://github.com/title-town">@title-town</a>, <a href="https://github.com/pt-friendships">@pt-friendships </a> <a href="https://github.com/pt-nominations">@pt-nominations</a>, <a href="https://github.com/pt-stars">@pt-stars</a>
 </details>
  </sub>
 
@@ -66,3 +66,6 @@ $\small{\text{\it\color{#B64594}{READ MY STRAWPAGE FOR MORE INFO ABT ME.}}}$
  <p align="center"><a href="https://github.com/VilLeynn"><img src="https://github.com/user-attachments/assets/9fbdf027-eeb7-49f8-922c-2afcbf4eb231" width="8%"></a>&nbsp;&nbsp;&nbsp;<a href=https://github.com/ansyellowhairclip><img src="https://github.com/user-attachments/assets/624c7fae-1a3b-41a9-85b6-1a973eef3bb3" width="8%"></a>&nbsp;&nbsp;&nbsp;<a href="https://github.com/PSITTACOLOGY"><img src="https://github.com/user-attachments/assets/2ce87bf9-fb76-4127-9f63-cbc82d2171cb" width="8%"></a><a href="https://github.com/theconqueringprotaganista "><img src="https://github.com/user-attachments/assets/4503fed4-c6ac-4c47-9fa5-3d18dc2b7e8a" width="8%"><a href="https://github.com/WhispyVibez "><img src="https://github.com/user-attachments/assets/96881ba9-9158-4434-8793-aa56dde7c0d6" width="8%"><a href="https://github.com/byymyownn "><img src="https://github.com/user-attachments/assets/140981e7-e345-4cca-bb0b-210e5a0c04fb" width="8%"></p>
  <p align="center"> 
  $\tiny{\text{\it\color{#E9C548}{@leyn}}}$ $\tiny{\text{\it\color{#FD7D5B}{@ami}}}$ $\tiny{\text{\it\color{#C85085}{@ronin}}}$ $\tiny{\text{\it\color{#DDC24E}{@ruby}}}$ $\tiny{\text{\it\color{#FD8657}{@whist}}}$ $\tiny{\text{\it\color{#423A67}{@own}}}$
+
+  <p align="center"> 
+ $\tiny{\text{\it\color{#C85790}{ALL ART PUT HERE WAS DRAWN BY ME ( ⸝⸝´꒳`⸝⸝) THANK YOU GILLY FOR LETTING ME USE UR CODE!!}}}$
