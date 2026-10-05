@@ -43,7 +43,8 @@ $\small{\text{\it\color{#B64594}{READ MY STRAWPAGE FOR MORE INFO ABT ME.}}}$
 <details>
   <summary>$\tiny\color{#E85E8E}{\text{PONYTOWN AWARDS}}$</summary>
  <sub> 
- <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media </a>, <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>, </a><a href="https://github.com/fans-town">@fans-town</a>, <a href="https://github.com/title-town">@title-town</a>, <a href="https://github.com/pt-friendships">@pt-friendships </a> <a href="https://github.com/pt-nominations">@pt-nominations</a>, <a href="https://github.com/pt-stars">@pt-stars</a> big love guys tysm for putting me here <3
+ <a href="https://github.com/pt-hall-of-media">@pt-hall-of-media </a>, <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>, </a><a href="https://github.com/fans-town">@fans-town</a>, <a href="https://github.com/title-town">@title-town</a>, <a href="https://github.com/pt-friendships">@pt-friendships </a> <a href="https://github.com/pt-nominations">@pt-nominations</a>, <a href="https://github.com/pt-stars">@pt-stars</a> 
+   big love guys tysm for putting me here <3
 </details>
  </sub>
 
