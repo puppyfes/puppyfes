@@ -51,7 +51,7 @@ $\small{\text{\it\color{#B64594}{READ MY STRAWPAGE FOR MORE INFO ABT ME.}}}$
 <p align="center">
   <p align="center"> <img align="center" src="https://github.com/user-attachments/assets/e4809cb9-8aa6-4f4c-81d9-11f867af5744" width="150"> <p align="center">
 
- <p align="center"><a href="https://kayokayy.straw.page/"><img src="https://github.com/user-attachments/assets/c83db968-b560-49b2-b05c-9da663742d0c" width="20%"></a>&nbsp;&nbsp;&nbsp;<a href=https://puppyfes.atabook.org/><img src="https://github.com/user-attachments/assets/c6f92e68-4c98-430c-abe3-52d88f4d9c0c" width="20%">
+ <p align="center"><a href="https://puppyfess.straw.page/"><img src="https://github.com/user-attachments/assets/c83db968-b560-49b2-b05c-9da663742d0c" width="20%"></a>&nbsp;&nbsp;&nbsp;<a href=https://puppyfes.atabook.org/><img src="https://github.com/user-attachments/assets/c6f92e68-4c98-430c-abe3-52d88f4d9c0c" width="20%">
 
  <p align="center"><a href="https://fruitbowltrio.straw.page/home"><img src="https://github.com/user-attachments/assets/0b9ac538-eff8-4967-8d1d-2a79eb4b3ad4" width="20%">
 
